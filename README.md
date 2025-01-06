@@ -27,6 +27,14 @@ I have collaborated with many artists such as:
 
 ### 📺 The Most Creative Music Videos
 
+[![Video Title](https://img.youtube.com/vi/JRF_sdTXpGw/0.jpg)](https://www.youtube.com/watch?v=JRF_sdTXpGw)
+[![Video Title](https://img.youtube.com/vi/nSHF67v781g/0.jpg)](https://www.youtube.com/watch?v=nSHF67v781g)
+[![Video Title](https://img.youtube.com/vi/bavb-bMBVno/0.jpg)](https://www.youtube.com/watch?v=bavb-bMBVno)
+[![Video Title](https://img.youtube.com/vi/N2neoYs8niw/0.jpg)](https://www.youtube.com/watch?v=N2neoYs8niw)
+[![Video Title](https://img.youtube.com/vi/7E74efrdSyw/0.jpg)](https://www.youtube.com/watch?v=7E74efrdSyw)
+[![Video Title](https://img.youtube.com/vi/d_1i4GdDIMg/0.jpg)](https://www.youtube.com/watch?v=d_1i4GdDIMg)
+
+
 <!-- BEGIN YOUTUBE-CARDS -->
 
 <!-- END YOUTUBE-CARDS -->
