@@ -1,4 +1,6 @@
-# 🏄‍♂️ MIHALNAQQ
+# 〽️〽️〽️MIHALNA
+![Alt Text](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExNDhjNnU5NHlscmVlOGVoc3JvY2o5ZTIwMTl0cWhkaXIycXlpM3F5dyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tzs9PFQ2Gcn4wTKxhy/giphy-downsized-large.gif)
+
 
 **`VIDEO CREATOR キ CGI キ VFX キ 3D-artist キ SFX  `**
 
@@ -34,13 +36,6 @@ I have collaborated with many artists such as:
 [![Video Title](https://img.youtube.com/vi/7E74efrdSyw/0.jpg)](https://www.youtube.com/watch?v=7E74efrdSyw)
 [![Video Title](https://img.youtube.com/vi/d_1i4GdDIMg/0.jpg)](https://www.youtube.com/watch?v=d_1i4GdDIMg)
 
-
-<!-- BEGIN YOUTUBE-CARDS -->
-
-<!-- END YOUTUBE-CARDS -->
-
-
-#
 
 ### 📊 Stats
 
