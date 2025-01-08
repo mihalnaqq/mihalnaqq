@@ -1,6 +1,7 @@
 # 〽️〽️〽️MIHALNA
 ![Alt Text](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExNDhjNnU5NHlscmVlOGVoc3JvY2o5ZTIwMTl0cWhkaXIycXlpM3F5dyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tzs9PFQ2Gcn4wTKxhy/giphy-downsized-large.gif)
 
+**`FULLSTACK developer: web キ game キ TG/discord bots`**
 
 **`VIDEO CREATOR キ CGI キ VFX キ 3D-artist キ SFX  `**
 
